@@ -2,4 +2,4 @@
 - 👀 I’m interested in multi-tools
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on probably nothing
-- 📫 How to reach me ... yamansaarioglu@outlook.com / player.disc#5680
+- 📫 How to reach me ... yamansarioglu@outlook.com / player.disc#5680
